@@ -1,24 +1,33 @@
 # Pregame workout
 
-1. Mikan drill - 14 попаданий (7 слева + 7 справа).
-2. Lay-up series - 4 попадания. 
-    - 3 точки: штрафная линий (слева + справа), слева (1 влево) и справа (1 вправо) под 45 градусов. 
-    - Вдоль лицевой использовать overhand layup
-    - Перевод за спиной/за головой на двух шагах 
-3. Warm up
-4. Ball-handling/Dribbling routine 
+1. Warm up
+    - high knee - 10
+    - backwards side knee - 10
+    - lateral jumps - 10 + 10
+    - long steps - 10
+    - x short jumps str and back - 10 + 10
+    - "_--__--" (10 + 10)
+2. Ball-handling/Dribbling routine 
     - [Isiah Thomas - Low Dribbling series (from 1:30)](https://youtu.be/BnvGa0I8bMc?t=90) - 6 + 3 + 3
     - [9 Combo Ball Handling Drill](https://www.youtube.com/watch?v=VRkClP8m9s4)
-    - [INTENSE AT HOME Dribbling Workout with LA LAKERS Coach! 😱](https://www.youtube.com/watch?v=NCHxsar6ZNA)
-        - In Between Cross - 5
-        - Double Cross Double Leg - 10
-        - In Between Triple Cross - 5
-        - In Between Behind Pound - 5
-5. Form shooting - 15 попаданий по схеме Aroung the World с расстояние около 3 метров.
-6. Free-time
+3. Mikan drill - 14 попаданий
+4. Form shooting - 15 попаданий (по схеме Aroung the World с расстояние около 3 метров) + 3 + 3 + 3
+5. Holger Lay-up series - 4 попадания. 
+    - 3 точки: штрафная линий (слева + справа c переводом за спиной underhand layup), под 45 градусов слева и справа за головой overhand layup. 
+    
+# After workout
+
+1. Form shooting - 36
+2. Holger Lay-up 
+    - 45 to mid
+3. Mikan
     - Reverse Mikan
     - Hook mid
-    - Layup 45 to mid
+3. [INTENSE AT HOME Dribbling Workout with LA LAKERS Coach! 😱](https://www.youtube.com/watch?v=NCHxsar6ZNA)
+    - In Between Cross - 5
+    - Double Cross Double Leg - 10
+    - In Between Triple Cross - 5
+    - In Between Behind Pound - 5
 
 # Plays signals
 
