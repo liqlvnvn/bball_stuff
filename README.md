@@ -11,7 +11,8 @@
     - [Isiah Thomas - Low Dribbling series (from 1:30)](https://youtu.be/BnvGa0I8bMc?t=90) - 6 + 3 + 3
     - [9 Combo Ball Handling Drill](https://www.youtube.com/watch?v=VRkClP8m9s4)
 3. Mikan drill - 14 попаданий - regular shot, not hook shot
-4. Form shooting - 15 попаданий (по схеме Aroung the World с расстояние около 3 метров) + 3 + 3 + 3
+    - floaters - 6 попаданий
+5. Form shooting - 15 попаданий (по схеме Aroung the World с расстояние около 3 метров) + 3 + 3 + 3
     - с 0 градусов рядом с краем щита
     - под 45 градусов всегда от щита
 6. Holger Lay-up series - 4 попадания. 
@@ -24,12 +25,17 @@
     - Double Cross Double Leg - 10
     - In Between Triple Cross - 5
     - In Between Behind Pound - 5
+2. Floater - one-handed shot, fingertips show __away__ from the basket. 3 точки вокруг корзины
 2. Form shooting - 36
 3. Holger Lay-up 
     - 45 to mid
 4. Mikan
     - Reverse Mikan
     - Hook mid
+
+# Sources
+
+[Dirkometrix](https://www.dirkometrix.com/)
 
 # Plays signals
 
