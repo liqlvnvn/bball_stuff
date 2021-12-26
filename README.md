@@ -11,7 +11,7 @@
     - [Isiah Thomas - Low Dribbling series (from 1:30)](https://youtu.be/BnvGa0I8bMc?t=90) - 6 + 3 + 3
     - [9 Combo Ball Handling Drill](https://www.youtube.com/watch?v=VRkClP8m9s4)
 3. Mikan drill - 14 попаданий - regular shot, not hook shot
-    - floaters - 6 попаданий
+    - regular bank shot - 3 + 3 попаданий
 5. Form shooting - 15 попаданий (по схеме Aroung the World с расстояние около 3 метров) + 3 + 3 + 3
     - с 0 градусов рядом с краем щита
     - под 45 градусов всегда от щита
