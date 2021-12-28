@@ -19,7 +19,11 @@
     - под 45 градусов всегда от щита
 5. Holger Lay-up series - 4 попадания. 
     - 3 точки: штрафная линий (слева + справа c переводом за спиной underhand layup), под 45 градусов слева и справа за головой regular shot finish (right hand). 
-    
+
+# Reminder
+
+- Floater - one-handed shot, fingertips show __away__ from the basket.
+
 # After workout
 
 1. [INTENSE AT HOME Dribbling Workout with LA LAKERS Coach! 😱](https://www.youtube.com/watch?v=NCHxsar6ZNA)
