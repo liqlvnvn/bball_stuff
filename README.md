@@ -11,6 +11,7 @@
     - "_--__--" (10 + 10)
     - side flaps - 5 + 5
     - cranking hips clockwise and counterclockwise - 5 + 5 + 5 + 5
+    - speed dribbling - 2 круга - левой и правой рукой.
 3. Ball-handling/Dribbling routine 
     - [Isiah Thomas - Low Dribbling series (from 1:30)](https://youtu.be/BnvGa0I8bMc?t=90) - 6 + 3 + 3
     - [9 Combo Ball Handling Drill](https://www.youtube.com/watch?v=VRkClP8m9s4)
