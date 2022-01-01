@@ -24,6 +24,8 @@
 # Reminder
 
 - Floater - one-handed shot, fingertips show __away__ from the basket.
+- Learning point
+    - [Steve Nash- Poise & Circling Thru Lane](https://www.youtube.com/watch?v=WwY__zWQArs) 
 
 # After workout
 
