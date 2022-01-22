@@ -6,13 +6,12 @@
     - over-under боком - 5 + 5
     - over the line 2 legs - 10
     - over the line 1 leg - 10
-2. Mikan drill - push shot (Pistol Pete, James Harden) - 12 попаданий
-    - Underhand 1 step - 6
+2. Mikan drill - push shot (Pistol Pete, James Harden) - 10 попаданий
 4. Ball-handling/Dribbling routine 
     - [Isiah Thomas - Low Dribbling series (from 1:30)](https://youtu.be/BnvGa0I8bMc?t=90) - 6 + 3 + 3
     - [9 Combo Ball Handling Drill](https://www.youtube.com/watch?v=VRkClP8m9s4)
-    - Side dribbling exercise?
-5. Form shooting - 15 попаданий (по схеме Aroung the World с расстояние около 3 метров) - 5 точек по 3 попадания
+    - Side dribbling exercise - 12
+5. Form shooting - 15 попаданий (по схеме Aroung the World с расстояние около 3 метров) - 3 точки по 3 попадания
     - с 0 градусов рядом с краем щита
     - под 45 градусов всегда от щита
 6. Around The World shooting - 4 точки по 3 попадания
