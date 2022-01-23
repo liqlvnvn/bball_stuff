@@ -11,10 +11,9 @@
     - [Isiah Thomas - Low Dribbling series (from 1:30)](https://youtu.be/BnvGa0I8bMc?t=90) - 6 + 3 + 3
     - [9 Combo Ball Handling Drill](https://www.youtube.com/watch?v=VRkClP8m9s4)
     - Side dribbling exercise - 12
-5. Form shooting - 15 попаданий (по схеме Aroung the World с расстояние около 3 метров) - 3 точки по 3 попадания
-    - с 0 градусов рядом с краем щита
+5. Form shooting - 3 точки по 3 попадания
     - под 45 градусов всегда от щита
-6. Around The World shooting - 4 точки по 3 попадания
+6. Around The World shooting - 6 точки по 3 попадания
  
 
 # Reminder
